@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+My hobbies are :
+- reading books
+- swimming
+- watching movies at the cinema with my girlfriend :blush:
